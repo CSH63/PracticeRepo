@@ -1,0 +1,1 @@
+This program should be solely used for joking with others. The authors of this program do not in any way condone genuine meanness. Use of this program must be in a fun context and not used in public spaces for any reason, expecially not for the goal of causing embarasment. By downloading our code you agree to use it also only within the terms of our license.
