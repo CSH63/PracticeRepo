@@ -1,1 +1,1 @@
-This program should be solely used for joking with others. The authors of this program do not in any way condone genuine mean
+This program should be solely used for joking with others. The authors of this program do not in any way condone genuine meanness. Use of this program must be in a fun context and not used in public spaces for any reason, expecially not for the goal of causing embarasment.
