@@ -1,0 +1,1 @@
+This program should be solely used for joking with others. The authors of this program do not in any way condone genuine mean
