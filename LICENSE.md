@@ -80,5 +80,5 @@ refund of the license fee.
 to be unenforceable, the rest will remain. This license
 can be changed only if the license downloader & I agree in
 writing (including email).
-20. Questions? Email csh63@pitt.edu. Thank you for
+20. Questions? Email csh63@pitt.edu or hik40@pitt.edu. Thank you for
 your purchase. Enjoy our code
